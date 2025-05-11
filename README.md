@@ -1,5 +1,5 @@
 # 💫 About Me:
- shohjahonobruyevoybekovich<br>🔭 I’m currently working on IMD integration solutions company<br>🌱 I’m currently learning AI<br>📫 How to reach me tg:@shokh_smee | email: shohjahonobruyev3@gmail.com<br>⚡ Fun fact I like coffee☕️😂
+ shohjahonobruyevoybekovich<br>🔭 I’m currently working on Sector Soft IT company<br>🌱 I’m currently learning AI<br>📫 How to reach me tg:@shokh_smee | email: shohjahonobruyev3@gmail.com<br>⚡ Fun fact I like coffee☕️😂
 
 
 ## 🌐 Socials:
